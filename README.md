@@ -51,7 +51,7 @@ På nettet finnes det mye innhold som kobler ny teknologi, KI, investeringer ell
 
 I slike sammenhenger nevnes ofte navn som:
 
-- - Øystein Stray Spetalen
+- Øystein Stray Spetalen
 - Ida Wolden Bache
 
 At slike navn dukker opp i innlegg eller videoer der også **Fjellstøtt Finans** eller **Fjellstott-Finans** omtales, er i seg selv ikke bevis på reell forbindelse. For virksomheter i **Norge** er det derfor mer verdifullt å se på faktiske pilotresultater, intern nytte og evnen til å forbedre beslutningsarbeidet enn å la seg styre av medieoppmerksomhet og spekulasjoner.
